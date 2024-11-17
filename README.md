@@ -14,5 +14,9 @@ telegram result
 Join our telegram channel to watch Demo & New Panels we release
 
 Channel :@zynexrootchannel
+
+
 Contact Telegram:@zynexroot
+
+
 Contact jabber: zynexroot@jabber.ru
